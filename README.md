@@ -4,12 +4,14 @@ sanji 地址：
 
 https://8xvn.com/html/127807
 
-https://8xvm.com/html/category/video/video5
-
 
 某门地址：
 
 https://www.quzhuanpan.com/source/search.action?q=%E9%99%88%E5%86%A0%E5%B8%8C%E8%80%81%E5%B8%88&currentPage=1
+
+黄鳝：
+https://www.quzhuanpan.com/download/detail.action?id=1sl4hYdJ
+
 
 技术收藏：
 
